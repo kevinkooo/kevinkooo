@@ -10,5 +10,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about baseball, the mountains, gaming, or any other activities!
 - 📫 How to reach me: Feel free to reach out to [linkedin](https://www.linkedin.com/in/the-kevin-ko/) or through email at kevinko9701@gmail.com
 - 😄 Pronouns: He/Him
-
-<!--
+-->
